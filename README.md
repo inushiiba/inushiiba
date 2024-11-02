@@ -1,5 +1,20 @@
-## Hi there 👋
-pony town users when github.com <-- hwa thte fuck is a code repo /j/j
+# hi there 👋 i'm inushiba !!
+
+if you're here, you are probably from ponytown lol
+
+## interests
+
+✨ **precure!!** (my top 3 is hirogaru sky, hugtto & kirakira!! my all time fave cures are cure custard, cure whip, cure wing, cure supreme, cure sky and cure amour!!) but also just mahou shoujo in general
+
+🎵 **music:** aphex twin, boards of canada, king gizzy, radiohead, kino, vocaloid, goreshit, the garden
+
+🎒 **object shows!!** (mainly hfjone and inanimate insanity)
+
+🎮 **games:** katamari, omori, portal, picross
+
+📺 **tv shows/anime:** madoka magica, infinity train, steven universe, mlp, moral orel.  animation/cartoons in general thoo !!!!!!!!!
+
+💭 **misc stuff:** seals, shiba inus, computers (mwah), jerma985, itemlabel, plushies, cds, kasane teto, hatsune mikuuuu
 
 <!--
 **inushiiba/inushiiba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
