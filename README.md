@@ -1,4 +1,4 @@
-# hi there 👋 i'm inushiba !!
+# hi there 👋 i'm inushiba !! ⋆˙⟡
 
 if you're here, you are probably from ponytown lol
 
