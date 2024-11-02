@@ -9,7 +9,7 @@ silly little internet dweller. irl shiba inu
 
 ✨ **precure!!** (my top 3 is hirogaru sky, hugtto & kirakira!! my all time fave cures are cure custard, cure whip, cure wing, cure supreme, cure sky and cure amour!!) but also just mahou shoujo in general
 
-🎵 **music:** aphex twin, boards of canada, king gizzy, radiohead, Кино, goreshit, the garden, mgmt, have a nice life, random vocaloid n idm/electronic shit, vylet pony
+🎵 **music:** aphex twin, boards of canada, king gizzy, radiohead, Кино, goreshit, the garden, mgmt, have a nice life, random vocaloid n idm/electronic shit, vylet pony, daft punk
 
 🎒 **object shows!!** (mainly hfjone and inanimate insanity)
 
@@ -18,6 +18,10 @@ silly little internet dweller. irl shiba inu
 📺 **media:** madoka magica, infinity train, steven universe, mlp, moral orel, electric dreams, Брат 1 & 2, it's such a beautiful day, bluey, saiki k
 
 💭 **misc stuff:** seals, shiba inus, computers (mwah), jerma985, itemlabel, plushies, cds, kasane teto, hatsune mikuuuu
+
+## my awesome last.fm
+
+<a href="https://www.last.fm/user/inushiba"><img src="https://lastfm-recently-played.vercel.app/api?user=inushiba" height="auto"/></a>
 
 <!--
 **inushiiba/inushiiba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
