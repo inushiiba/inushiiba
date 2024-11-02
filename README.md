@@ -2,6 +2,9 @@
 
 if you're here, you are probably from ponytown lol
 
+## about me
+silly little internet dweller. irl shiba inu
+
 ## interests
 
 ✨ **precure!!** (my top 3 is hirogaru sky, hugtto & kirakira!! my all time fave cures are cure custard, cure whip, cure wing, cure supreme, cure sky and cure amour!!) but also just mahou shoujo in general
