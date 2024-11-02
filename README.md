@@ -1,6 +1,5 @@
 ## Hi there 👋
-
-https://i.redd.it/kxfezo21rdpb1.png 
+pony town users when github.com <-- hwa thte fuck is a code repo /j/j
 
 <!--
 **inushiiba/inushiiba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
