@@ -13,9 +13,9 @@ silly little internet dweller. irl shiba inu
 
 🎒 **object shows!!** (mainly hfjone and inanimate insanity)
 
-🎮 **games:** katamari, omori, portal, picross
+🎮 **games:** katamari, omori, portal, picross, zenless zone zero
 
-📺 **tv shows/anime:** madoka magica, infinity train, steven universe, mlp, moral orel.  animation/cartoons in general thoo !!!!!!!!!
+📺 **media:** madoka magica, infinity train, steven universe, mlp, moral orel, electric dreams, Брат 1 & 2, it's such a beautiful day, bluey, saiki k
 
 💭 **misc stuff:** seals, shiba inus, computers (mwah), jerma985, itemlabel, plushies, cds, kasane teto, hatsune mikuuuu
 
