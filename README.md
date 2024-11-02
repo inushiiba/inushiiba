@@ -6,7 +6,7 @@ if you're here, you are probably from ponytown lol
 
 ✨ **precure!!** (my top 3 is hirogaru sky, hugtto & kirakira!! my all time fave cures are cure custard, cure whip, cure wing, cure supreme, cure sky and cure amour!!) but also just mahou shoujo in general
 
-🎵 **music:** aphex twin, boards of canada, king gizzy, radiohead, Кино, goreshit, the garden, mgmt, have a nice life, random vocaloid n idm/electronic shit
+🎵 **music:** aphex twin, boards of canada, king gizzy, radiohead, Кино, goreshit, the garden, mgmt, have a nice life, random vocaloid n idm/electronic shit, vylet pony
 
 🎒 **object shows!!** (mainly hfjone and inanimate insanity)
 
