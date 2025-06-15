@@ -1,9 +1,9 @@
 # hi there 👋 i'm inushiba !! ⋆˙⟡
 
-
+if you're here, you are probably from ponytown lol. 
 
 ## about me
-if you're here, you are probably from ponytown lol. i'm inu, a silly little internet dweller from the uk and an irl shiba inu ฅ^•ﻌ•^ฅ
+i'm inu, a silly little internet dweller from the uk and an irl shiba inu ฅ^•ﻌ•^ฅ
 
 ## interests
 
@@ -22,6 +22,19 @@ if you're here, you are probably from ponytown lol. i'm inu, a silly little inte
 ## my awesome last.fm
 
 <a href="https://www.last.fm/user/inushiba"><img src="https://lastfm-recently-played.vercel.app/api?user=inushiba" height="auto"/></a>
+
+## socials (in order of activity)
+
+tumblr: https://inushiiba.tumblr.com/
+
+last.fm: https://www.last.fm/user/inushiba 
+
+listography: https://listography.com/inushiba
+
+pronouns.cc: https://pronouns.cc/@inu
+
+status.cafe: https://status.cafe/users/inushiba (trying this out!)
+
 
 <!--
 **inushiiba/inushiiba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
