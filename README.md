@@ -17,7 +17,7 @@ i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^
 
 📺 **media:** do it yourself!! · _madoka magica_ · _precure_ · saiki k · spy×family · the helpful fox senko-san · yuru camp△ · _its such a beautiful day_ · precure all stars f · wallace & gromit · брат 1/2 · bluey · infinity train · _moral orel_ · my little pony · steven universe
 
-**blorbos:** kasane teto · sunset shimmer · gromit · cure wing · cure custard · cure supreme / preme · puca · cure amour · inukai komugi · eevee · kururun · saiki kusuo · liam plecak · vaporeon · cure sky · mephone4 · shimarin · derpy hooves · albedo kreideprinz · ellen joe · starlight glimmer · madoka kaname
+💖 **blorbos:** kasane teto · sunset shimmer · gromit · cure wing · cure custard · cure supreme / preme · puca · cure amour · inukai komugi · eevee · kururun · saiki kusuo · liam plecak · vaporeon · cure sky · mephone4 · shimarin · derpy hooves · albedo kreideprinz · ellen joe · starlight glimmer · madoka kaname
 
 💭 **misc stuff:** _seals_ · cds (& physical media in general) · computers (mwah) · earl grey tea · fictional robots @_@ · foss & right to repair · littlest pet shop · iyashikei · piracy :3 · shiba inus · jerma985 · itemlabel · plushies · kasane teto
 
