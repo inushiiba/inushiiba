@@ -27,15 +27,15 @@ i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^
 
 ## socials (in order of activity)
 
-tumblr: https://inushiiba.tumblr.com/
+**tumblr**: https://inushiiba.tumblr.com/
 
-last.fm: https://www.last.fm/user/inushiba 
+**last.fm**: https://www.last.fm/user/inushiba 
 
-listography: https://listography.com/inushiba
+**listography**: https://listography.com/inushiba
 
-pronouns.cc: https://pronouns.cc/@inu
+**pronouns.cc**: https://pronouns.cc/@inu
 
-status.cafe: https://status.cafe/users/inushiba (trying this out!)
+**status.cafe**: https://status.cafe/users/inushiba (trying this out!)
 
 
 <!--
