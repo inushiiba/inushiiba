@@ -1,6 +1,6 @@
 # hi there 👋 i'm inushiba !! ⋆˙⟡
 
-if you're here, you are probably from ponytown lol. feel free to interact! _( c+h / int )_
+if you're here, you are probably from ponytown lol. feel free to interact! _(c+h/int)_
 
 ## about me
 i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^•ﻌ•^ฅ
