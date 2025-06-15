@@ -19,7 +19,7 @@ i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^
 
 💖 **blorbos:** kasane teto · sunset shimmer · gromit · cure wing · cure custard · cure supreme / preme · puca · cure amour · inukai komugi · eevee · kururun · saiki kusuo · liam plecak · vaporeon · cure sky · mephone4 · shimarin · derpy hooves · albedo kreideprinz · ellen joe · starlight glimmer · madoka kaname
 
-💭 **misc stuff:** _seals_ · cds (& physical media in general) · computers (mwah) · earl grey tea · fictional robots @_@ · foss & right to repair · littlest pet shop · iyashikei · piracy :3 · shiba inus · jerma985 · itemlabel · plushies · kasane teto
+💭 **misc stuff:** _seals_ · cds (& physical media in general) · computers (mwah) · earl grey tea · fictional robots @_@ · foss & right to repair · littlest pet shop · iyashikei · piracy :3 · shiba inus · jerma985 · itemlabel · plushies
 
 ## socials (in order of activity)
 
