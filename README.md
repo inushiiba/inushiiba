@@ -21,10 +21,6 @@ i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^
 
 💭 **misc stuff:** _seals_ · cds (& physical media in general) · computers (mwah) · earl grey tea · fictional robots @_@ · foss & right to repair · littlest pet shop · iyashikei · piracy :3 · shiba inus · jerma985 · itemlabel · plushies · kasane teto
 
-## my awesome last.fm
-
-<a href="https://www.last.fm/user/inushiba"><img src="https://lastfm-recently-played.vercel.app/api?user=inushiba" height="auto"/></a>
-
 ## socials (in order of activity)
 
 **tumblr**: https://inushiiba.tumblr.com/
@@ -36,6 +32,10 @@ i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^
 **pronouns.cc**: https://pronouns.cc/@inu
 
 **status.cafe**: https://status.cafe/users/inushiba (trying this out!)
+
+## my awesome last.fm
+
+<a href="https://www.last.fm/user/inushiba"><img src="https://lastfm-recently-played.vercel.app/api?user=inushiba" height="auto"/></a>
 
 
 <!--
