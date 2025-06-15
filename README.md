@@ -3,21 +3,21 @@
 
 
 ## about me
-if you're here, you are probably from ponytown lol. silly little internet dweller. irl shiba inu
+if you're here, you are probably from ponytown lol. i'm inu, a silly little internet dweller from the uk and an irl shiba inu ฅ^•ﻌ•^ฅ
 
 ## interests
 
-✨ **precure!!** (my top 3 is hirogaru sky, hugtto & kirakira!! my all time fave cures are cure custard, cure whip, cure wing, cure supreme, cure sky and cure amour!!) but also just mahou shoujo in general
-
-🎵 **music:** aphex twin · _boards of canada_ · daft punk · goreshit · king gizzard & the lizard wizard · кино · mgmt · _radiohead_ · talking heads · the garden · vylet pony
+✨ **precure!!** (my top 3 is hirogaru sky, hugtto & kirakira!! my all time fave cures are cure custard, cure whip, cure wing, cure supreme, cure sky and cure amour!!)
 
 🎒 **object shows!!** (mainly hfjone and inanimate insanity)
+
+🎵 **music:** aphex twin · _boards of canada_ · daft punk · goreshit · king gizzard & the lizard wizard · кино · mgmt · _radiohead_ · talking heads · the garden · vylet pony
 
 🎮 **games:** animal crossing new leaf · katamari damacy · omori · picross · portal ·  rhythm heaven · the sims
 
 📺 **media:** do it yourself!! · _madoka magica_ · _precure_ · saiki k · spy×family · the helpful fox senko-san · yuru camp△ · _its such a beautiful day_ · precure all stars f · wallace & gromit · брат 1/2 · bluey · infinity train · _moral orel_ · my little pony · steven universe
 
-💭 **misc stuff:** seals, shiba inus, computers (mwah), jerma985, itemlabel, plushies, cds, kasane teto, hatsune mikuuuu
+💭 **misc stuff:** _seals_ · cds (& physical media in general) · computers (mwah) · earl grey tea · fictional robots @_@ · foss & right to repair · littlest pet shop · iyashikei · piracy :3 · shiba inus · jerma985 · itemlabel · plushies · kasane teto
 
 ## my awesome last.fm
 
