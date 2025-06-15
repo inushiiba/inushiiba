@@ -3,7 +3,7 @@
 if you're here, you are probably from ponytown lol. 
 
 ## about me
-i'm inu, a silly little internet dweller from the uk and an irl shiba inu ฅ^•ﻌ•^ฅ
+i'm inu, a silly little internet dweller from 🇬🇧 and an irl shiba inu ฅ^•ﻌ•^ฅ
 
 ## interests
 
